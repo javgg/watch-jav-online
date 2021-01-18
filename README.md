@@ -1,2 +1,2 @@
 # watch-jav-online
-Watch jav online at javgg.net
+Watch jav online at https://javgg.net
